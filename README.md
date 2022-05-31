@@ -12,7 +12,7 @@ If that's the case, feel free to contact me or know more about my work here.
 
 
 - 📫 How to reach me: ...
-- 
+
 Gmail: **tahzeeb.sattar786@gmail.com**
 
 Phone: **+92-340-0466536**
