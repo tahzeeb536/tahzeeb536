@@ -15,7 +15,7 @@ If that's the case, feel free to contact me or know more about my work here.
 - 
 Gmail: **tahzeeb.sattar786@gmail.com**
 
-Phone: **+92-302-6421790**
+Phone: **+92-340-0466536**
 
 LinkedIn: [Tahzeeb Sattar](https://www.linkedin.com/in/tahzeeb-sattar/)
 
